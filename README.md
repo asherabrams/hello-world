@@ -10,3 +10,4 @@ I am a US citizen, live in the Portland area, and have no issues with drug / bac
 Skill set includes Active Directory, MS Exchange, ITSM (ServiceNow, HP Service Manager, Cherwell), remote desktop, and excellent customer service and administrative skills.
 
 I enjoy challenging work in a fast-paced environment, and I'm not afraid of hard work and extra hours. There's a special satisfaction in getting a tough job done well.
+
